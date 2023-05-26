@@ -9,4 +9,4 @@
 
 [حسام العفيصان](https://github.com/HussamZiyad)
 
-عبدالله الرشيدي
+[عبدالله الرشيدي](https://github.com/abdalhone)
